@@ -22,8 +22,8 @@
 
 看片提醒您请注意，永久地址一定要加https
 
-[如网站被屏蔽，在其它浏览器上无法观看，请下载chrome浏览器](http://mnsp1.com/chrome.apk) 
+[如网站被屏蔽，在其它浏览器上无法观看，请下载chrome浏览器](https://yqq1.top/chrome.apk) 
 
-看片邮箱找回：如果以上地址均不可用，请看网页底部邮箱地址,请发邮件到 mnsk12345678@gmail.com
+看片邮箱找回：如果以上地址均不可用，请看网页底部邮箱地址,请发邮件到 yqq1.top@gmail.com
 
 
